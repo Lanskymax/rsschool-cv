@@ -1,1 +1,2 @@
+https://Lanskymax.github.io/rsschool-cv/cv
 # rsschool-cv
